@@ -1,6 +1,7 @@
 ### Hi there 👋 
 
 Á sei la meu nome e Maicon  só isso mesmo.
+Segue no insta : @maico0_0.
 
 <!--
 **DuffyLuscyh/DuffyLuscyh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
